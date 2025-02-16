@@ -3,7 +3,7 @@
 
 **Utrecht, The Netherlands**  
 📧 shivammutreja25@gmail.com | 📞 +31-616754588  
-[LinkedIn](https://linkedin.com/in/shivam-mutreja-13100956) | [GitHub](https://github.com/yourusername)
+[LinkedIn](https://linkedin.com/in/shivam-mutreja-13100956) | [GitHub](https://github.com/shivammutreja)
 
 ---
 
